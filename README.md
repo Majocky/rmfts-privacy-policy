@@ -1,1 +1,0 @@
-# rmfts-privacy-policy
